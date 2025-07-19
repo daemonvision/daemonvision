@@ -10,7 +10,7 @@ i suggest you take a peek at my strawpage for more in depth info + my outward li
 + the binding of isaac
 + courage the cowardly dog
 + vocaloid
-+ juni ito
++ junji ito
 + horror and surreal works like the works of yames, garage bad dream adventure, ENA, lacey games, dr. nowhere, your local breadman and more!!!
 + and... gulp... a handful of roblox games
 i like anything that's a little weird or spooky and a little cute or colorful! i try my best to play the cards i'm given and i'm here for fun first and foremost
@@ -21,5 +21,6 @@ i like anything that's a little weird or spooky and a little cute or colorful! i
 For more specific PT info...
 + my username is daedae!! <- with the exclamations!! but if you're here u probably know that
 +  I usually people watch, but I'm ALSO usually up to chat! If I'm totally quiet I'm probably afk or offtab, though I try to use away if i'm stepping away and busy/dnd if i'm totally offtab doing something else
-+ Sometimes I roleplay, though this is moreso with friends or in groups /party islands!!
++ Sometimes I roleplay, though this is moreso with friends or in groups /party islands with more closed off settings! 
 + It's fine for people to cover/sit close but I may move out of the way to avoid cramming! but it's nothing that *bothers* me
++ my skins are also cool to take inspo from but please don't deliberatley copy anything 1 to 1 !! 
