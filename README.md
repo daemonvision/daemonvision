@@ -19,6 +19,7 @@ i like anything that's a little weird or spooky and a little cute or colorful! i
 + On Ponytown I'm on the 18+ server 99% of the time. Likewise, I don't want to interact with anyone below 18 on PT and I'd like you to respect that!! Some of my platforms are 16+ but others are 18+ (newgrounds, DA) for more graphic art
 + I'm not fond of much flirting, jokingly so or not, towards me. Hard no if we don't know eachother irl.
 For more specific PT info...
-+ I usually people watch, but I'm ALSO usually up to chat! If I'm totally quiet I'm probably afk or offtab, though I try to use away if i'm stepping away and busy/dnd if i'm totally offtab doing something else
++ my username is daedae!! <- with the exclamations!! but if you're here u probably know that
++  I usually people watch, but I'm ALSO usually up to chat! If I'm totally quiet I'm probably afk or offtab, though I try to use away if i'm stepping away and busy/dnd if i'm totally offtab doing something else
 + Sometimes I roleplay, though this is moreso with friends or in groups /party islands!!
 + It's fine for people to cover/sit close but I may move out of the way to avoid cramming! but it's nothing that *bothers* me
