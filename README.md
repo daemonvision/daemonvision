@@ -1,4 +1,6 @@
 # INITIATING : DAEMONVISION
+![an edit of rishie-p's world end dancehall music video. Teto and Miku's faces are covered by the YAAI smileys and there is a color + glitch overlay](https://64.media.tumblr.com/0fafb072406ed4e6f2071c049a0b1bcc/d79df54979a2d99b-d5/s1280x1920/ba3bf24536b2d7fad74b406be54bc91b9b0c84bd.pnj)
+<sub>[og source](https://www.youtube.com/watch?v=9GcYTkRoA9A)</sub>
 ## dae * she/her mainly but it's whatever * 20
 hobby + student, soon to be career artist and writer!! epic gamer, occasional roleplayer, eyeing up the prospect of making a game or two. and cosplay + sewing!
 i suggest you take a peek at my strawpage for more in depth info + my outward links to socials and whatnot, but while you're here I'll say my biggest interests atm are:
