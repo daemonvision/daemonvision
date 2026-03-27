@@ -25,3 +25,4 @@ For more specific PT info...
 + Sometimes I roleplay, though this is moreso with friends or in groups /party islands with more closed off settings! 
 + It's fine for people to cover/sit close but I may move out of the way to avoid cramming! but it's nothing that *bothers* me
 + my skins are also cool to take inspo from but please don't deliberatley copy anything 1 to 1 !! 
++ i can be pretty awkward when I'm warming up to people, don't take it personally! also, do LMK if i ever make you uncomfortable or if there's something I otherwise oughta know! 
